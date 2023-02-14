@@ -4,7 +4,7 @@
 ## Porque me gusta esta serie:
  Me encanta esta serie por la calidad de su trama
  ademas de tener muy buenas actuaciones y que esta 
- chistosa para andar mamando :heart_eyes: :relaxed:	:ghost:	:ghost:	:call_me_hand: :call_me_hand:.
+ chistosa para andar mamando :heart_eyes: 😊😏😁😟😙:relaxed:	:ghost:	:ghost:	:call_me_hand: :call_me_hand:.
 
  Por ser una serie sobre ganster italoamericanos, nos muestra la vida tan mala que tenia este grupo etnico en 
  la sociedad estadounidense en los principios del siglo 
